@@ -1,4 +1,4 @@
-# eptweekly
+# eptweekly https://shop.epochweekly.com/cn/books/shop
 <a id="user-content-header" target="_blank" href="https://d2s2wi1fnz3swh.cloudfront.net/cn/books/shop?m=https://d2s2wi1fnz3swh.cloudfront.net&amp;u=1001web"><img border="0" src="https://cloud.githubusercontent.com/assets/18081243/18481052/d8827a34-79a8-11e6-82b8-ecca44ca7e98.jpg" style="max-width:100%;"></a>
 <p>如果您在大陆从政、经商，「中国第一禁书」就是你私人的政治內參，让您预知局势发展趋势，避免「拜错山头，上错香」，在纷乱的局势中抓住先机致胜。【请点击上图】获取中共高层随时关注，却又不想让民众看到的禁书。
 </p>
